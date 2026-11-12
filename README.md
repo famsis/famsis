@@ -49,7 +49,7 @@ Full-service software development company — from strategy and design to launch
 
 ## Contact
 
-📍 **Address:** IT City, near IIIT Lucknow, near Ekana Stadium, Lucknow, Uttar Pradesh 226002
+📍 **Registered Address:** Prakash Enterprises, Khasra No. 372, Chillaulla, Bakkas, Lucknow, Uttar Pradesh 226002, India
 
 🌐 **Website:** [famsis.github.io](https://famsis.github.io)
 
